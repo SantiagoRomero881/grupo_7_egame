@@ -9,7 +9,7 @@ Publico en general
 ### Descripción Equipo
 Max.-
 Renan.- 
-Santiago.-
+Santi.-
 
 ### Referencias
 https://jvgamesperu.com.pe/
